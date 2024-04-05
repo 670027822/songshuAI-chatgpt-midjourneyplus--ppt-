@@ -8,11 +8,10 @@ https://blog.aifa.ink/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%a
 vx：670027822
 # 网站截图
 ![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
-
-![alt jietu](https://i.postimg.cc/1RMH1P8P/5b4bdbdaaad0812a642b34deaf09b16.png)
-
-![alt jietu](https://i.postimg.cc/X7kckW0t/d759bbfea7591e3bb18323d56240d9a.png)
-
-![alt jietu](https://i.postimg.cc/0QPphHxb/O1-CN01-Py-Zi-Ul1a-Xln-Wc9n-ZV-2201216933340.png)
-
+![alt jietu](https://i.postimg.cc/jS6MSPFG/002.png)
+![alt jietu](https://i.postimg.cc/zDbZX2S6/003.png)
+![alt jietu](https://i.postimg.cc/7Yks8KBg/004.png)
+![alt jietu](https://i.postimg.cc/vTLvZdP5/005.png)
+![alt jietu](https://i.postimg.cc/ydC9gb3j/006.png)
+![alt jietu](https://i.postimg.cc/SRTJrTRw/007.png)
 ![alt jietu](https://i.postimg.cc/DyV3btr9/20240405185211.png)
