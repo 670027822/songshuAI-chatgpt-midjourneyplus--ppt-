@@ -9,6 +9,6 @@ https://blog.aifa.ink/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%a
 
 ![alt jietu](https://i.postimg.cc/pdFH3qkb/20240405182120.png)
 
-![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
+![alt jietu](https://i.postimg.cc/X7kckW0t/d759bbfea7591e3bb18323d56240d9a.png)
 
-![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
+![alt jietu](https://i.postimg.cc/0QPphHxb/O1-CN01-Py-Zi-Ul1a-Xln-Wc9n-ZV-2201216933340.png)
