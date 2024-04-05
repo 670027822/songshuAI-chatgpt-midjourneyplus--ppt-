@@ -6,3 +6,9 @@ https://blog.aifa.ink/index.php/2024/02/13/%e6%9d%be%e9%bc%a0ai%e6%90%ad%e5%bb%b
 https://blog.aifa.ink/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%ae%e6%95%99%e7%a8%8b/
 # 网站截图
 ![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
+
+![alt jietu](https://i.postimg.cc/pdFH3qkb/20240405182120.png)
+
+![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
+
+![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
