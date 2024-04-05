@@ -4,6 +4,8 @@
 https://blog.aifa.ink/index.php/2024/02/13/%e6%9d%be%e9%bc%a0ai%e6%90%ad%e5%bb%ba%e6%95%99%e7%a8%8b%ef%bc%88%e4%bd%bf%e7%94%a8%e5%ae%9d%e5%a1%94%e9%9d%a2%e6%9d%bf%ef%bc%89/
 # 配置教程
 https://blog.aifa.ink/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%ae%e6%95%99%e7%a8%8b/
+# 联系站长
+vx：670027822
 # 网站截图
 ![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
 
