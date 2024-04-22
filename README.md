@@ -9,7 +9,7 @@ https://blog.aifa.ink/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%a
 # 联系站长
 vx：670027822
 # 用户交流群
-![alt jietu](https://blog.kkk99.top/yasuo/qun.jpg?version=2)
+![alt jietu](https://blog.kkk99.top/redirect.php)
 # 网站截图
 ![alt jietu](https://i.postimg.cc/wT6GD0mx/20240405182120.png)
 ![alt jietu](https://i.postimg.cc/jS6MSPFG/002.png)
