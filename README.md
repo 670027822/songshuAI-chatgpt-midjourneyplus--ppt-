@@ -3,9 +3,9 @@
 # 最新源码下载。注意：源码仅供学习使用，上线运营需要付费授权。
 [4.8.7](https://blog.kkk99.top/yasuo/4.8.7.rar)
 # 部署教程
-https://blog.aifa.ink/index.php/2024/02/13/%e6%9d%be%e9%bc%a0ai%e6%90%ad%e5%bb%ba%e6%95%99%e7%a8%8b%ef%bc%88%e4%bd%bf%e7%94%a8%e5%ae%9d%e5%a1%94%e9%9d%a2%e6%9d%bf%ef%bc%89/
+https://blog.kkk99.top/index.php/2024/02/13/%e6%9d%be%e9%bc%a0ai%e6%90%ad%e5%bb%ba%e6%95%99%e7%a8%8b%ef%bc%88%e4%bd%bf%e7%94%a8%e5%ae%9d%e5%a1%94%e9%9d%a2%e6%9d%bf%ef%bc%89/
 # 配置教程
-https://blog.aifa.ink/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%ae%e6%95%99%e7%a8%8b/
+https://blog.kkk99.top/index.php/2024/02/14/%e6%9d%be%e9%bc%a0ai%e9%85%8d%e7%bd%ae%e6%95%99%e7%a8%8b/
 # 联系站长
 vx：670027822
 # 用户交流群
